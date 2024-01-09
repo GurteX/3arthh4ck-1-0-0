@@ -1,8 +1,6 @@
-# 3arthh4ck / CheeseHack
-CheeseHack download free online.
-shoutout vowl <- shut up nigga
+# 3arthh4ck
 
-> If you really think prebuilt jar is a rat, you can now compile this src yourself, either way you're getting the same thing
+No Namer Newfag GurteX, oHare Fanboy Bitch Client Leak (It's A Piece Of Shit As That Nigger Can't Even Code Lmfao)
 
 GUI:
 
