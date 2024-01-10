@@ -1,6 +1,6 @@
 # 3arthh4ck
 
-No Namer Newfag GurteX, oHare Fanboy Bitch Client Leak (It's A Piece Of Shit As That Nigger Can't Even Code Lmfao)
+Nonamer Newfag GurteX, oHare Fanboy, Bitch, Client Leak (It's A Piece Of Shit As That Nigger Can't Even Code Lmfao)
 
 GUI:
 
